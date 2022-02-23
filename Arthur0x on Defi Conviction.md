@@ -18,4 +18,3 @@ After watching this episode after 9 months later, I have huge conviction on both
 - 10% - 20% chance #Solana replaces #ETH in years;
 - DYDX as a good example, they tried to build their product on #Starkware , which is a case by case situation (proved)
 - Read #Multicoin early blogs, really help on investing;
-- 
