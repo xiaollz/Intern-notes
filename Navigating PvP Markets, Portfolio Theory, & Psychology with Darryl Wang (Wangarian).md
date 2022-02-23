@@ -1,0 +1,31 @@
+#Youtube #Defiance #DarrylWang
+
+### Notes:
+- From 519:
+	- **survive** is the most import thing
+	- stop leverage
+- Identify narrative
+	- find the runs of 0-1 innovation - only way to gain more
+	- try to retrospect the same rhythm - *trial & error + pattern recognition*
+	- simplify and clear one's mind to be more receptive to these opportunities
+- Decision making efficiency
+- Do not use limit-order
+	- cuz huge mental stress, which is unnecessary (I totally agree!!!)
+- Bet sizing
+	- Before dd, introduced by others, invest 2%, then add more after size until 20%
+	- Beta exposure + high convicted (illiquide) hodl to 0
+- Psychology
+	- make decision with a clear mind
+	- crypto is a longer grind
+	- comfy in your own lane, not FOMO
+- Plan
+	- One could be right on the thesis level but one could still lose because risk on assets
+	- plan is a way to prepare for the contingencies
+	- execute the plan (flip 2x for me)
+	- common trap: u are forced to hold the coin you have belief but down harder
+- Shift of the market
+- Entry&exit strategy
+	- Honest to yourself and review your portfolio
+		- Track p&l every week to monitoring your thesis
+		- Check your goal, e.g. TVL, volume, talk to team
+		- Cut the position wen u find you r wrong (keep asking yourself)
